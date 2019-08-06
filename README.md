@@ -1,0 +1,2 @@
+# XOGAME
+For AJ kob
